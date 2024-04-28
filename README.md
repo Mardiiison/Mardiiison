@@ -1,0 +1,10 @@
+- 👋 Hi, I’m @Mardiiison
+- 👀 I’m interested in playing volleyball 
+- 🌱 I’m currently learning Thai
+- 💞️ I’m already taken
+- 📫 How to reach me direct message me on Mardison Banquilay
+- 😄 Pronouns: They/them
+- ⚡ Fun fact: I love to watch BL
+- 🩷 In a relationship with Matthew Guevarra
+- ✨ Supportive
+- 🚩 Easily get emotionally attached to someone 
